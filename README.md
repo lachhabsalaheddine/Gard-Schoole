@@ -1,2 +1,0 @@
-# Gard-Schoole
-schoole
